@@ -1,13 +1,32 @@
-╭【   ♡・ introduction 】  ・・
+⛏️ - Hey, hello!
 
-・┈⟢ name : poison ivy.
-・┈⟢ gender : male.
-・┈⟢ likes : music, drawing, halloween.
-・┈⟢ dni : proshippers, groomers, weird people.
-・┈⟢ int : NON weird phighting fans, femtanyl, and odetari likers (artist).
-・┈⟢ fixations : phighting, roblox, pt, bdfi, dbz.
+)) Shelly spekaing here ! ; Just know that this github is made for fun and info, so i wont be active on this website very much! thank you!
 
-╰╮ ⟢﹕ other : ♋️ - 🏳️‍⚧️ [[ Lyrics !!''My head is overflowing, with these thoughts. That if I return the favor you might understand. But I know, I know you could never carry the burden. You've left with me and I can't give it back So why even try?''
-⎯⎯⎯⎯ ⟢ 
-discord ; devine_ressurection twt ; n0nag0n_ 
+
+
+- xxx - xxx - xxx - xxx - xxx -
+
+- " oh, you forgot my name..? Thats alright, just remeber next time! "
+
+•｡🦖* ☆ ⛏️
+
+🐚 I N T R O //= 
+
+Hello there, you can call me shelly! Here, i will state some things that i am interested in, so i cna find some people to talk to! Please do not intrract if you find any of these fandoms/intrests uncomforatble, because i will be talking alot about these topics!
+
+🕳️ ' 1: Topic? [ Fandoms! ]
+
+Phigthing, roblox, Dandys world, Mouthwashing, my little pony, sonic, and mostly every osc!!
+
+⛏️ ' 2: Topic [ Special interests! ]
+
+Dinosuars, fossils, sharks, and many more! I also love to study animals, and meeting new fRIEnds!..
+
+🐚 ' 3: Topic [ Info! ]
+
+Minor! Please dont be weird. Open to talk to, not the best at comforting although. Dandys world fandom iwc! Dont like some of you guys.
+
+------------ 🦖 -------------- 🦖 ---------------
+
+' 🕳️ And thats it! Thanks for reading this, and i hope to meet new friIRNEDS to talk to!.. 🐚⛏️ ))
 
