@@ -13,6 +13,8 @@
 
 .・。.・゜✭・.・✫・゜・。. .・。.・゜✭・.・✫・゜・。.
 
+*･῾ ᵎ⌇ ⁺◦ 💮 ✧.* { NICKNAMES, NAMES! } : Dandy, Poison, Cosmo, or Boxten!
+
 🎧 -- # FAV ARTISTS ┊ ┊ Femtanyl, mailpup, odetari, penelope scott, that handsome devil, tyler the creator, will wood, and mindless self indulgence =+
 
 .・。.・゜✭・.・✫・゜・。. .・。.・゜✭・.✫・゜・。.
