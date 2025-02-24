@@ -1,32 +1,45 @@
-⛏️ - Hey, hello!
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcR7j5QKJgzch9UaSlmUsuhZzmncNIKbIFt-MA&amp;s" alt="Stars Gif - IceGif"/>![image](https://github.com/user-attachments/assets/890909f2-e9cd-4a06-a14e-f0cb5ae0b9c4)
+`*;．★  . . Ah.. Hello there! 
+- just gonna infodrop here . . dont mind me ! ✧˚ · .
+- 
+- [ 🍥  FAV GAMES _- Dandys world, roblox, phighting, adopt me, ponytown, sfoth, chess, and tf2! ))
+- { 🍰  INTERESTS, FANDOMS IN ^- BFDi, dandys world, my little pony, teenage mutant ninja turtles, phighting, invader vim, and panty&stocking!
+- = / FAV AUS \ =
+- Dandys fighters!
+- Jensets world!
+- Astros world/swap au!
 
-)) Shelly spekaing here ! ; Just know that this github is made for fun and info, so i wont be active on this website very much! thank you!
+.・。.・゜✭・.・✫・゜・。. .・。.・゜✭・.・✫・゜・。.
+
+🎧 -- # FAV ARTISTS ┊ ┊ Femtanyl, mailpup, odetari, penelope scott, that handsome devil, tyler the creator, will wood, and mindless self indulgence =+
+
+.・。.・゜✭・.・✫・゜・。. .・。.・゜✭・.✫・゜・。.
+
+[ { ❌ -- DNI : Over 25, and below 9. Some dandys world fans, and obvious weird people. (transphobics, pedos, etc)
+
+{ [ ✔ -- INT! : majority of the fandoms im in, phantom tollbooth fans PLLEEASE, animal jam players, and animal crossing players.
+
+╭── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╮╭── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╮╭── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╮
+
+⌦ .｡.:*♡ - FAV SHIPS - 
+
+DANDYS WORLD; Fruitcake, Fruitflower, Moonflower, HistoricCraft, Shellvision, CleanShell, CakeFly, FancyCleaning, MoonBerryFlower, and FancyTelevision!
+
+PHIGHTING; SubKit, Swocket, ScytheStaff, MedHammer, BrokerZuka, SubHammer, ZukaHeart, CryStalHammer, and SlingBoard!
+
+__________----------------____________--------------\\\\
+
+＊*•̩̩͙✩•̩̩͙*˚ )__TRIGGERS THAT I MAY TRIGGER ;: WILL make 18+ joke someimes, dark jokes, silent treatment, mostly offtab, clingy, somewhat dry.
+
+╰─〔❨✧✧❩〕─╯  [[ HOBBIES! ;; Cooking/baking, Drawing, professional gamer \hvyj, and crafting.
+------------\
+
+THX FOR READING ! !! ! HAVE A GOOD NIGHT\DAY\EVENING!!!!! 
 
 
 
-- xxx - xxx - xxx - xxx - xxx -
 
-- " oh, you forgot my name..? Thats alright, just remeber next time! "
 
-•｡🦖* ☆ ⛏️
 
-🐚 I N T R O //= 
 
-Hello there, you can call me shelly! Here, i will state some things that i am interested in, so i cna find some people to talk to! Please do not intrract if you find any of these fandoms/intrests uncomforatble, because i will be talking alot about these topics!
-
-🕳️ ' 1: Topic? [ Fandoms! ]
-
-Phigthing, roblox, Dandys world, Mouthwashing, my little pony, sonic, and mostly every osc!!
-
-⛏️ ' 2: Topic [ Special interests! ]
-
-Dinosuars, fossils, sharks, and many more! I also love to study animals, and meeting new fRIEnds!..
-
-🐚 ' 3: Topic [ Info! ]
-
-Minor! Please dont be weird. Open to talk to, not the best at comforting although. Dandys world fandom iwc! Dont like some of you guys.
-
------------- 🦖 -------------- 🦖 ---------------
-
-' 🕳️ And thats it! Thanks for reading this, and i hope to meet new friIRNEDS to talk to!.. 🐚⛏️ ))
 
