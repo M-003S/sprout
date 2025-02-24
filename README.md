@@ -1,4 +1,6 @@
 <img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcR7j5QKJgzch9UaSlmUsuhZzmncNIKbIFt-MA&amp;s" alt="Stars Gif - IceGif"/>![image](https://github.com/user-attachments/assets/890909f2-e9cd-4a06-a14e-f0cb5ae0b9c4)
+
+
 `*;．★  . . Ah.. Hello there! 
 - just gonna infodrop here . . dont mind me ! ✧˚ · .
 - 
