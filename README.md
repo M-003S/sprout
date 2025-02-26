@@ -5,7 +5,7 @@
 - just gonna infodrop here . . dont mind me ! ✧˚ · .
 - 
 - [ 🍥  FAV GAMES _- Dandys world, roblox, phighting, adopt me, ponytown, sfoth, chess, and tf2! ))
-- { 🍰  INTERESTS, FANDOMS IN ^- BFDi, dandys world, my little pony, teenage mutant ninja turtles, phighting, invader vim, and panty&stocking!
+- { 🍰  INTERESTS, FANDOMS IN ^- BFDi, dandys world, my little pony, teenage mutant ninja turtles, phighting, invader zim, and panty&stocking!
 - = / FAV AUS \ =
 - Dandys fighters!
 - Jensets world!
