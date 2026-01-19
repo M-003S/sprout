@@ -20,5 +20,6 @@ if you whisper me, or cuddle me and i suddenly leave, dont worry!!!! i will most
 
 thank you  ^ω^
 
+![Kuroi (@bigmankuroi) on X](https://github.com/user-attachments/assets/f3491ba1-bcf6-4776-8a5a-9bcc67cd84b5)
 
 
