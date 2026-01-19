@@ -16,6 +16,9 @@ if you whisper me, or cuddle me and i suddenly leave, dont worry!!!! i will most
 
       - -          - -          - -          - -          - -          - -          - -          - -
 
+![𝙈𝙖𝙛𝙞𝙤𝙨𝙤](https://github.com/user-attachments/assets/35a46da4-907b-4cae-a459-dcc197c5ed03)
+
+
 thank you  ^ω^
 
 
