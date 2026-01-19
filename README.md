@@ -12,9 +12,14 @@ c+h me anytime! I have cuddle comf, and also like to sit behind people. also fre
 
 sliight cd, that is if im not purposefuly behind you. If you cover me, im most likely to move
 
-if you whisper me, or cuddle me and i suddenly leave, dont worry!!!! i will most likely come back, and try to get back to ya ㅤㅤㅤㅤㅤㅤ ㅤㅤ⤷if i do not happen to come back, sorryㅤㅤㅤㅤㅤㅤ⤷ mostly why i leave is because i am transferring from class2class 
+if you whisper me, or cuddle me and i suddenly leave, dont worry!!!! i will most likely come back, and try to get back to ya ㅤㅤㅤㅤㅤㅤ ㅤㅤ⤷if i do not happen to come back, sorryㅤㅤㅤㅤ⤷ mostly why i leave is because i am transferring from class2class 
 
       - -          - -          - -          - -          - -          - -          - -          - -
+
+      ![𝙈𝙖𝙛𝙞𝙤𝙨𝙤](https://github.com/user-attachments/assets/7822ca7e-7c80-46a7-9203-9b3b7eff2bd6)
+
+      thank you  ^ω^
+
 
 
 
