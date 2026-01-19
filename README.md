@@ -16,7 +16,6 @@ if you whisper me, or cuddle me and i suddenly leave, dont worry!!!! i will most
 
       - -          - -          - -          - -          - -          - -          - -          - -
 
-<img src="blob:chrome-untrusted://media-app/8d6c9ef9-5796-4a04-a4e6-8f352101fb46" alt="𝙈𝙖𝙛𝙞𝙤𝙨𝙤 (1).jpeg"/>
 
 
 thank you  ^ω^
