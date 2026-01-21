@@ -14,6 +14,8 @@ sliight cover discomfort, that is if im not purposefuly behind you. If you cover
 
 if you whisper me, or cuddle me and i suddenly leave, dont worry!!!! i will most likely come back, and try to get back to ya ㅤㅤㅤㅤㅤㅤ ㅤㅤ⤷if i do not happen to come back, sorryㅤㅤㅤㅤ⤷ mostly why i leave is because i am transferring from class2class 
 
+i also really like poetry and find it beautiful
+
 also check strawpage for more info!! (currently a wip)
 
       - -          - -          - -          - -          - -          - -          - -          - -
@@ -25,7 +27,17 @@ thank you  ^ω^
 ![Kuroi (@bigmankuroi) on X](https://github.com/user-attachments/assets/f3491ba1-bcf6-4776-8a5a-9bcc67cd84b5)
 
 
-'' 𝘪 𝘫𝘶𝘴𝘵 𝘵𝘩𝘪𝘯𝘬 𝘺𝘰𝘶𝘳 𝘤𝘳𝘢𝘻𝘺 𝘪𝘧 𝘺𝘰𝘶 𝘵𝘩𝘪𝘯𝘬 𝘪𝘮 𝘪𝘯𝘵𝘰 𝘺𝘰𝘰𝘶-𝘸𝘰𝘰-𝘸𝘰𝘰 
 
-𝘮𝘢𝘺𝘣𝘦 𝘪𝘧 𝘺𝘰𝘶𝘳𝘦 𝘴𝘮𝘢𝘳𝘵 𝘦𝘯𝘰𝘶𝘨𝘩 𝘵𝘰 𝘵𝘩𝘪𝘯𝘬 𝘪𝘵 𝘮𝘪𝘨𝘩𝘵 𝘣𝘦 𝘵𝘳𝘶𝘦 ''
- 
+
+Nature's first green is gold,
+Her hardest hue to hold.
+Her early leaf's a flower;
+But only so an hour.
+Then leaf subsides to leaf.
+So Eden sank to grief,
+So dawn goes down to day.
+Nothing gold can stay. 
+
+
+
+
