@@ -31,14 +31,7 @@ also check strawpage for more info!! (currently a wip) ꒱ ⏔⏔⏔
 <img width="800" height="230" alt="image" src="https://github.com/user-attachments/assets/241ea042-3690-4c1f-afd4-b0d27f40f00e" />
 
 
-
-
-
 thank you  ^ω^
-
-![Kuroi (@bigmankuroi) on X](https://github.com/user-attachments/assets/f3491ba1-bcf6-4776-8a5a-9bcc67cd84b5)
-
-
 
 
 Nature's first green is gold,
